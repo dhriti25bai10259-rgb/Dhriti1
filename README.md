@@ -1,4 +1,4 @@
-# dhriti25bai10259-rgb📛
+# dhriti25bai10259-rgb
 
 >#NAME
 Dhriti Shukla
